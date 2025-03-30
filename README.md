@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @S3oud79
 - I’m interested in programing.
-- 🌱 I’m currently learning about free enerjy
+- 🌱 I’m currently learning about Free Energy 
 - 💞️ 
 - 📫 
 - 😄 
